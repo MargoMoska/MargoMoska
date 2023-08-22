@@ -1,5 +1,4 @@
-- 👋 
-Allow me to introduce Nina, who's currently navigating the exciting phase of her life. I'm taking my first steps into office administration, absorbing new knowledge and skills like a sponge.
+👋 Allow me to introduce Nina, who's currently navigating the exciting phase of her life. I'm taking my first steps into office administration, absorbing new knowledge and skills like a sponge.
 
 When I'm not engrossed in office tasks, I find solace and inspiration in the world of painting. Those moments in front of a canvas, when colors transform into my own expressions and moods, are truly cherished. Through my strokes, I unravel my thoughts and feelings, creating unique pieces of art.
 
